@@ -1,5 +1,4 @@
 ## ✨ Plek Dev
-![Imagen de WhatsApp 2025-09-01 a las 15 15 36_a8b532f2](https://github.com/user-attachments/assets/8876bf3b-5ee5-4a8b-9608-a55d9ff1f78d)
 
 Plek Dev is a community of passionate software development enthusiasts.  
 We collaborate on innovative projects, many of which were born during hackathons since 2024.  
