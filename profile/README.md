@@ -43,3 +43,9 @@ https://youtu.be/CJiaA1OP8u4
 
 ![Imagen de WhatsApp 2025-11-13 a las 12 46 19_ba57ac52](https://github.com/user-attachments/assets/11f90f45-15b3-40d7-9fea-99e5bc3d2738)
 
+### Soude
+
+<img width="1280" height="960" alt="WhatsApp Image 2026-04-24 at 9 18 35 PM" src="https://github.com/user-attachments/assets/3eecdbe4-1aa4-4e62-a934-c85fdd9adbdb" />
+
+
+
